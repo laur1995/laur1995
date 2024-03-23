@@ -36,7 +36,7 @@ As a junior front-end developer, I bring fresh perspectives, a strong work ethic
 
 ### 📫 Let's Connect:
 
-I'm open to opportunities for collaboration, internships, summer bootcamps, and more. If you're interested in working together or have any questions, please don't hesitate to reach out to me via email at laurentiulao100@gmail.com or connect with me on www.linkedin.com/in/laurențiu-ghivnici-99b43b187.
+I'm open to opportunities for collaboration, internships, summer bootcamps, and more. If you're interested in working together or have any questions, please don't hesitate to reach out to me via email at laurentiulao100@gmail.com or connect with me on www.linkedin.com/in/laurențiu-ghivnici.
 
 Thank you for considering me, and I'm excited about the possibility of contributing with my skills and enthusiasm to your team!
 
