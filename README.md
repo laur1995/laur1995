@@ -23,7 +23,7 @@ I'm a junior front-end developer currently embarking on my journey in the world 
 ### 🌟 My Projects:
 
 During my free time, I actively work on various projects to hone my skills and explore new technologies. These projects not only showcase my abilities but also serve as a testament to my dedication to personal and professional growth.
-Certainly! Here's an extended description that you can include in your README.md file on GitHub:
+
 
 ### 💡 My Approach:
 
